@@ -1,16 +1,16 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+-Vice President of the Social Survey Association（SIA）, Nanjing University, 2025-
 
-- National Scholarship for Graduate Student, 2024.
+-Vice President of the Linquan Piano Club, Nanjing University, 2025-
 
-- First-Prize Scholarship (CUMT), 2024.
+-Member of the All-Media Creative Studio, Psychological Center, Nanjing University, 2024-
 
-- First-Prize Scholarship (CUMT), 2023.
+-Member of the Cultural and Creative Department, Yujiao Association, Nanjing University, 2024-
 
-- Freshman Scholarship (CUMT), 2022.
+-Member of the Post-production Department, Campus Photography Club, Nanjing University, 2024-
 
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
+-Vice Minister of the Media Operations Department, Tencent Rhino Bird Club, Nanjing University, 2024-2025
 
-- First-Prize Enterprise Scholarship (CUMT), 2020.
+-Member of the Ministerial Team, Social Survey Association（SIA）, Nanjing University, 2024-2025
 
-- First-Prize Scholarship (CUMT), 2019.
+-Class Psychological Counselor, 2024-2025
