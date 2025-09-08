@@ -3,6 +3,6 @@
 
 - CET-4 (College English Test Band 4): 648 points.
 
-- National Computer Rank Examination (NCRE) Level 2.
+- NCRE (National Computer Rank Examination) Level 2.
 
 - Proficient Mastery of Photoshop
