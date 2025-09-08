@@ -5,4 +5,4 @@
 
 - Captain of "Jinling Guilü Society", University-Level Social Practice, Nanjing University, 2025  [practice report](https://1drv.ms/w/c/39c6575413366958/EYxlOxSPA9BAgbypUJgF6NUBjf_TPmmZ7sFmxW_nLF-MWw?e=LfSzV2)
 
--Independent completion of the "Weverse" software app teardown report with AI tools for the "Internet + Design" course [report website](https://florinelin.github.io/Weverse-analysis/)
+-Independent completion of the "Weverse" software app teardown report with AI tools for the "Internet + Design" course [report website](https://florinelin.github.io/Weverse-analysis/index.html)
