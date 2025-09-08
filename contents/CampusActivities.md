@@ -1,7 +1,7 @@
 
 - Vice President of the Social Survey Association（SIA）, Nanjing University, 2025-
 
-- Vice President of the Linquan Piano Club, Nanjing University, 2025-
+- Vice President of the Lyreland Pianoforte Assn, Nanjing University, 2025-
 
 - Member of the All-Media Creative Studio, Psychological Center, Nanjing University, 2024-
 
