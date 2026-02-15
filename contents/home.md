@@ -6,11 +6,11 @@ She is currently a Fellow in the Department of Sociology (SOC) at Nanjing Univer
 
 #### Contact
 
-Email: 241820277[at]smail.nju.edu.cn
+Email: 241820277[at]smail.nju.edu.cn/2532675935@qq.com
 
 #### Education
 B.L., Sociology, Nanjing University, 2024–Present (Expected Graduation: 2028)
 
 #### Future Research Interests
-Quantitive studies, Gender studies, Sociology of death.
+Sociology of the Body, Sex Sociology, Gender studies, Sociology of death.
 
