@@ -1,4 +1,4 @@
-### Tencent Music Entertainment (TME) | Campus Brand Ambassador | Jan. 2026 – Present
+### Tencent Music Entertainment (TME)  |  Campus Brand Ambassador  |  Jan. 2026 – Present
 
 - Massive User Growth: Spearheaded the user acquisition campaign for Bodian Music (minimalist version of QQ Music), successfully driving 10,000+ new registrations within two weeks.
 
@@ -6,7 +6,7 @@
 
 - Target Audience Penetration: Leveraged deep insights into Gen-Z music preferences to optimize promotional narratives, significantly increasing brand resonance and acquisition efficiency.
 
-### Nanjing Weilan Intelligent Technology | AI Picture Book Intern | Jan.- Feb. 2026
+### Nanjing Weilan Intelligent Technology  |  AI Picture Book Intern  |  Jan.- Feb. 2026
 
 - AIGC Content Strategy:Led topic selection and storyboarding for AI picture books, aligning creative concepts with automated production capabilities.
 
@@ -19,7 +19,7 @@
 - Quality Benchmarking: Conducted iterative testing and feedback on AI models to optimize output stability and aesthetic accuracy.
 
 
-### Procter & Gamble (P&G) | PGC Campus Ambassador (Data & Marketing) | Jul. 2025 – Present
+### Procter & Gamble (P&G)  |  PGC Campus Ambassador |  Jul. 2025 – Present
 
 - Data Hub & Research Strategy: Served as a core member of the Data Hub, designing survey frameworks and securing the bid for P&G’s national campus research project.
 
