@@ -1,5 +1,5 @@
 
-- Nanjing Weilan Intelligent Technology | AI Picture Book Intern | 2026.01-02
+-Nanjing Weilan Intelligent Technology | AI Picture Book Intern | 2026.01-02
 
 AIGC Content Strategy: Led topic selection and storyboarding for AI picture books, aligning creative concepts with automated production capabilities.
 
