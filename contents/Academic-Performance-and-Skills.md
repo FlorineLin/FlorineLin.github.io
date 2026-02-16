@@ -7,4 +7,4 @@
 
 - NCRE (National Computer Rank Examination) Level 2.
 
-- Proficient Mastery of Photoshop, Excel, PPT, Word, AI
+- Proficient Mastery of Photoshop, Excel, PPT, Word, AI tools
