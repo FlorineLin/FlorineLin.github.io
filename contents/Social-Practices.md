@@ -1,8 +1,17 @@
+### Research on the Promotion Dilemma of "Ecological Burial" in Nanjing  |  Project Leader
 
-- Member of the Brand Promotion Department, P&G Campus Ambassador Team, Nanjing University (NJUPGC), 2025-
+- Directed an exploratory qualitative study using semi-structured interviews and participant observation to investigate the low adoption rate of eco-friendly burials in Nanjing.
 
-- Leader of the "Xingzhi Mengxue" Qingdaolu Community Practice Project Team, Nanjing University, 2025 [practice report](https://1drv.ms/w/c/39c6575413366958/EeoKnIRxEhdLmXV5x2GRYUkBu6f6ZfD5E3fCXDBK2fEQNA?e=GQVNgB)
+-Identified that the primary resistance stems from deep-rooted cultural symbol conflicts rather than economic factors. The "minimalist" nature of eco-burials compresses the social functions of traditional funerals, leading to an institutional mismatch between policy incentives and the psychological need for "settling in the earth."
 
-- Captain of "Jinling Guilü Society", University-Level Social Practice, Nanjing University, 2025  [practice report](https://1drv.ms/w/c/39c6575413366958/EYxlOxSPA9BAgbypUJgF6NUBjf_TPmmZ7sFmxW_nLF-MWw?e=LfSzV2)
+### Research and Documentary on "Cyber-Metaphysics" Youth Subculture  |  ndependent Researcher & Director
 
-- Independent completion of the "Weverse" software app teardown report with AI tools for the "Internet + Design" course [report website](https://florinelin.github.io/Weverse-analysis/index.html)
+- Applied visual anthropology methods, conducting in-depth interviews with students from diverse academic backgrounds and directing the documentary "Seeking an Answer" to track metaphysical consumption on social media.
+
+- Revealed that "Cyber-Metaphysics" serves as a "ritual resistance" and "emotional tool" for youth coping with modern anxieties. Highly educated groups achieve "rational re-enchantment" through intellectual reconstruction, seeking psychological autonomy within the cracks of instrumental rationality.
+
+### Research on Intergenerational Interaction and Community Identity in Qingdao Road | Core Member
+
+- Conducted semi-structured interviews with 5 elderly and 7 young residents in the Qingdao Road community under the "Xingzhi Mengxue" research initiative to compare intergenerational participation.
+
+- Uncovered divergent participation logics: the elderly focus on "mutual aid," while the youth are driven by "interest-based social circles." Proposed differentiated incentive mechanisms to transform community perception from "instrumental cognition" to "homeland identity."
