@@ -1,16 +1,16 @@
 
-- Vice President of the Social Survey Association（SIA）, Nanjing University, 2025-
+### Linquan Piano Club | Vice President | Jun. 2025 – Present
 
-- Vice President of the Lyreland Pianoforte Assn, Nanjing University, 2025-
+- Full-Cycle Event Orchestration: Spearheaded the planning and execution of the "Autumn Pop" and "Winter Classical" concerts, managing venue resources and performer recruitment 
 
-- Member of the All-Media Creative Studio, Psychological Center, Nanjing University, 2024-
+- Standard Operating Procedures (SOP): Established comprehensive execution manuals and coordinated a team of 30+ performers to ensure zero-error delivery of large-scale campus events 
 
-- Member of the Cultural and Creative Department, Yujiao Association, Nanjing University, 2024-
+- Vendor & Merchandise Management: Managed external vendor relations and supervised the production of club-branded merchandise, ensuring aesthetic consistency and timely delivery 。
 
-- Member of the Post-production Department, Campus Photography Club, Nanjing University, 2024-
+### Social Research Association | Vice President | Jun. 2025 – Present
 
-- Vice Minister of the Media Operations Department, Tencent Rhino Bird Club, Nanjing University, 2024-2025
+- AIGC-Driven Innovation: Led the "AI + Campus Culture" project, utilizing Generative AI to transform sociological research findings into creative visual content, winning the Grand Prize in the NJU Creative Competition 
 
-- Member of the Ministerial Team, Social Survey Association（SIA）, Nanjing University, 2024-2025
+- Digital Persona & Content Strategy: Developed a "Career Mastermind" digital persona report based on member demand surveys to guide high-engagement seminar topics 
 
-- Class Psychological Counselor, 2024-2025
+- End-to-End Project Management: Managed the entire lifecycle of professional salons, from market positioning and narrative design to multi-channel promotion 
