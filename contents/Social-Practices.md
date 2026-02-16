@@ -10,6 +10,12 @@
 
 - Revealed that "Cyber-Metaphysics" serves as a "ritual resistance" and "emotional tool" for youth coping with modern anxieties. Highly educated groups achieve "rational re-enchantment" through intellectual reconstruction, seeking psychological autonomy within the cracks of instrumental rationality.
 
+### Research on Gender Consciousness Formation and Disciplinary Gender Structures
+
+- Utilized the life-course approach to conduct in-depth interviews on the awakening paths of women from diverse backgrounds and the survival strategies of female physics students in male-dominated environments.
+
+- Analyzed how family, media, and workplace serve as "awakening scenes" that shape gender consciousness. Exposed how the "default-male" logic in physics leads to the marginalization of women in spatial and discursive dimensions, emphasizing that these dilemmas stem from structural environments rather than capability gaps.
+
 ### Research on Intergenerational Interaction and Community Identity in Qingdao Road
 
 - Conducted semi-structured interviews with 5 elderly and 7 young residents in the Qingdao Road community under the "Xingzhi Mengxue" research initiative to compare intergenerational participation.
